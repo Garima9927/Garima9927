@@ -10,7 +10,3 @@
 💻 Open to **collaborations**, especially in **open-source**, **research-driven projects**, and **education-focused tools**
 
 ---
-
-> “Strive for progress, not perfection.”
-
-Thanks for stopping by! 🌸 Feel free to check out my work and connect!
